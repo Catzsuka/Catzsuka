@@ -2,4 +2,4 @@
 Intern x S.Agent DNIUF / HeadAgent INT 
 ( sorry maybe not sorry . )
 
-<a href="https://github.com/fawnlet">@Dr STUPID</a> haha
+I do NOT and will NEVER support AHA anymore
